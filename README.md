@@ -1,6 +1,6 @@
-someone
+SYSTEM FICTIVE HEY GUYS!! MCD SASARA + UNLISTED 
 
-![](https://static.wikia.nocookie.net/ensemble-stars/images/f/f1/%28Trendsetting_Egoist%29_Rinne_Amagi_Chibi.gif/revision/latest?cb=20241201134847)
+![](https://static.wikia.nocookie.net/hypnosis-mic/images/6/6c/DoD_11_Illust.png/revision/latest/scale-to-width-down/1000?cb=20240927220255)
 
 <!---
 compozerdizeaze/compozerdizeaze is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
