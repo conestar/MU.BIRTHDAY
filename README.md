@@ -7,3 +7,5 @@ i was in MANY MANY more. but thats all i currently remember. do i remember my cl
 
 currently in:
 CEF, TGS :)
+
+ps... if you know me from one of those or smwhere else -- feel free to reach out. i do not mind making friends from old spaces.
