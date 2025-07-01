@@ -6,6 +6,6 @@ BIO IFJ IKEA FK BM IJ (regi i do not remmeber the name of but it was cyber arcad
 i was in MANY MANY more. but thats all i currently remember. do i remember my claims? no. but i know i used Seigen Arima, Jyobu Jikuin and Rindo Akune in some. 
 
 currently in:
-CEF, TGS :)
+CEF (as Karib-WAN) && TGS (as Seigen Arima) :)
 
 ps... if you know me from one of those or smwhere else -- feel free to reach out. i do not mind making friends from old spaces.
